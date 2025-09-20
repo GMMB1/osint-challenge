@@ -1,6 +1,6 @@
 # 📖 The Story of Marten Dóna
 
-Marten Dóna is 32 years old, born in Russia, now living far away in Tokyo, Japan.
+Marten Dona is 32 years old, born in Russia, now living far away in Tokyo, Japan.
 Once, life looked different. He had a wife, Rujin, whom he met during his travels in South Korea. They built a life together, simple mornings with coffee and quiet snow in the winter.
 
 But things changed. Arguments grew into distance. Two years ago, Rujin left — and Marten hasn’t spoken openly about her since. Some pieces of their life remain scattered online: her name in old posts, a reference to “coffee mornings,” or fragments of their travels together.
